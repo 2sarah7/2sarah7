@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @2sarah7
+- 👋 Hi, I’m @2sarah7, I'm just coding for fun and for school
 - 👀 I’m interested in stuff
 - 🌱 I’m currently learning things
 - 💞️ I’m looking to collaborate on nothing
