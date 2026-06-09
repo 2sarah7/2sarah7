@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @2sarah7, I like vibe coding and accidentally breaking my computer
+- 👋 Hi, I’m @2sarah7, I like vibe coding and accidentally breaking my electronics
 - 👀 I’m interested in awesome stuff
 - 🌱 I’m currently learning lots of things
 - 💞️ I’m looking to collaborate on nothing. Unless you're doing something really cool, then maybe. 
